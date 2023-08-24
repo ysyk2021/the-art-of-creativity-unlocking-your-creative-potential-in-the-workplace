@@ -1,4 +1,3 @@
-# Addressing Limiting Beliefs
 
 In this chapter, we will explore the power of addressing limiting beliefs and how they can hinder our creative potential in the workplace. By understanding the nature of these beliefs and implementing strategies to overcome them, individuals can unleash their true creative abilities and drive innovation.
 

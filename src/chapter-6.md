@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Creative Skills
-==========================================
 
 Developing your creative skills is essential for unlocking your full creative potential in the workplace. In this chapter, we will explore strategies for developing your creative skills, including understanding the principles of creative development, developing strategies for strengthening your creativity, utilizing feedback and coaching, and fostering continuous learning and improvement.
 

@@ -1,5 +1,3 @@
-Understanding the Science Behind Creativity
-======================================================
 
 In this chapter, we will explore the fascinating science behind creativity and delve into the cognitive processes and neurological mechanisms that underpin our ability to generate innovative ideas. Understanding the science behind creativity can provide valuable insights into how to enhance and harness our creative potential in the workplace.
 

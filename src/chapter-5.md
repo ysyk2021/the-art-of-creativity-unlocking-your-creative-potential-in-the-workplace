@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Creativity in the Workplace
-======================================================
 
 Maximizing your creativity in the workplace can lead to increased job satisfaction, productivity, and innovation. In this chapter, we will explore strategies for maximizing your creativity in the workplace, including identifying opportunities to be creative at work, finding ways to apply your creativity to your job, communicating your creative ideas to your employer, and fostering collaboration with coworkers.
 

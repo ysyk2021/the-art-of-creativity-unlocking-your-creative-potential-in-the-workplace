@@ -1,5 +1,3 @@
-Chapter 2: Defining Creativity
-==============================
 
 Defining creativity is an essential step in unlocking your full creative potential in the workplace. In this chapter, we will explore an overview of creativity, understanding the science behind creativity, and assessing your personal approach to creativity.
 
@@ -22,5 +20,4 @@ Conclusion
 ----------
 
 Defining creativity is an essential step in unlocking your full creative potential in the workplace. By understanding the science behind creativity, assessing your personal approach to creativity, and adopting a growth mindset, you can achieve meaningful outcomes and drive growth and success for your organization. Remember to stay curious, embrace experimentation, and maintain a positive attitude towards failure and mistakes to unlock your full creative potential.
-
 

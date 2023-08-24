@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 Measuring results and learning from experience is an essential aspect of unlocking your full creative potential in the workplace. In this chapter, we will explore strategies for tracking progress and measuring results when pursuing creative projects or initiatives.
 

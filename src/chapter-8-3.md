@@ -1,5 +1,3 @@
-Fostering Knowledge Sharing and Mentorship
-=====================================================
 
 In any creative workplace, fostering knowledge sharing and mentorship is crucial for unlocking and nurturing the creative potential of employees. This chapter explores the importance of creating a culture that encourages knowledge sharing and mentorship, and provides practical strategies to facilitate these valuable interactions.
 

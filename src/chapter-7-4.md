@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-===================================
 
 In this chapter, we will explore the concept of a growth mindset and its significance in unlocking your creative potential in the workplace. By cultivating a growth mindset, you can overcome self-limiting beliefs, embrace challenges, and foster continuous learning and growth.
 

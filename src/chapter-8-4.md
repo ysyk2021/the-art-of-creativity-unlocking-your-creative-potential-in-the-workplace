@@ -1,5 +1,3 @@
-Celebrating Creative Achievements
-==========================================
 
 In this chapter, we will explore the significance of celebrating creative achievements in the workplace. Recognizing and honoring the creativity of individuals not only boosts morale and motivation but also fosters a culture of innovation and continuous growth. This chapter will discuss various ways to celebrate and acknowledge creative accomplishments.
 

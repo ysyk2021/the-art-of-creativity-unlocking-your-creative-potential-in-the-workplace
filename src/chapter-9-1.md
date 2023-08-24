@@ -1,5 +1,3 @@
-Identifying Creative Technologies and Resources
-========================================================
 
 In this chapter, we will explore various creative technologies and resources that can unlock your creative potential in the workplace. These tools and resources can inspire innovative thinking, facilitate collaboration, and enhance your ability to generate and implement creative ideas. By harnessing the power of technology and leveraging valuable resources, you can amplify your creative capabilities and contribute to a more productive and innovative work environment.
 

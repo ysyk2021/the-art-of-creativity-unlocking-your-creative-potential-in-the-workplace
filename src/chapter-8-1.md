@@ -1,5 +1,3 @@
-Encouraging Proactive Creativity Across the Organization
-===================================================================
 
 In a rapidly changing business landscape, organizations need to foster a culture of proactive creativity to stay ahead of the competition. This chapter explores the importance of encouraging proactive creativity throughout the organization and provides strategies to empower employees to take initiative and contribute their innovative ideas.
 

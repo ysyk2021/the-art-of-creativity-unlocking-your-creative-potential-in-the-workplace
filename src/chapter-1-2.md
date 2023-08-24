@@ -1,5 +1,3 @@
-Common Misconceptions About Creativity
-===============================================
 
 In this chapter, we will explore and debunk some common misconceptions about creativity. These misconceptions often limit our understanding of creativity and hinder its full potential in the workplace. By dispelling these myths, we can cultivate a more accurate perception of creativity and embrace its transformative power.
 

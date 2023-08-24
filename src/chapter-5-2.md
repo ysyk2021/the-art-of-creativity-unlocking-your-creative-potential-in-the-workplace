@@ -1,5 +1,3 @@
-Finding Ways to Apply Your Creativity to Your Job
-============================================================
 
 In this chapter, we will explore strategies for applying your creativity to your job and maximizing your innovative potential within the workplace. By leveraging your creative abilities, you can make a significant impact, find fulfillment in your work, and contribute to the overall success of your organization.
 

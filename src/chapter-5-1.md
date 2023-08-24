@@ -1,5 +1,3 @@
-Identifying Opportunities to Be Creative at Work
-=========================================================
 
 In this chapter, we will explore strategies for identifying and harnessing opportunities to be creative in the workplace. By recognizing these opportunities, you can cultivate a more innovative and dynamic work environment that encourages creativity and enhances your professional growth.
 

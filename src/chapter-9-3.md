@@ -1,5 +1,3 @@
-Fostering Accessibility and Inclusivity
-================================================
 
 In this chapter, we will explore the importance of fostering accessibility and inclusivity in the workplace to unlock the full creative potential of individuals from diverse backgrounds. By creating an environment that celebrates diversity, embraces different perspectives, and removes barriers, organizations can cultivate a culture of creativity that benefits everyone.
 

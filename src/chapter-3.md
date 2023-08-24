@@ -1,5 +1,3 @@
-Chapter 3: Developing a Creative Mindset
-========================================
 
 Developing a creative mindset is essential for unlocking your full creative potential in the workplace. In this chapter, we will explore techniques for cultivating a creative mindset, including utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through creativity.
 

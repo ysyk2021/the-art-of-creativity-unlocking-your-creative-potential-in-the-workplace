@@ -1,5 +1,3 @@
-Chapter 7: Managing Blocks to Creativity
-========================================
 
 Managing blocks to creativity is essential for unlocking your full creative potential in the workplace. In this chapter, we will explore strategies for managing blocks to creativity, including identifying common blocks to creativity, developing strategies for overcoming blocks, overcoming fear and uncertainty, and fostering a growth mindset.
 

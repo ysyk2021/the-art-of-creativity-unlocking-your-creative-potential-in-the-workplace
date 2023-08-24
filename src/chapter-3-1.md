@@ -1,5 +1,3 @@
-Techniques for Cultivating a Creative Mindset
-======================================================
 
 In this chapter, we will explore various techniques that can help you cultivate a creative mindset. These techniques are designed to inspire and enhance your creative thinking abilities, enabling you to unlock your full creative potential in the workplace.
 

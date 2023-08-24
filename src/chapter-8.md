@@ -1,5 +1,3 @@
-Chapter 8: Creating a Creative Culture
-======================================
 
 Creating a culture of creativity within an organization can lead to significant benefits, including improved innovation, employee engagement, and productivity. In this chapter, we will explore strategies for creating a creative culture, including encouraging proactive creativity across the organization, providing training and professional development opportunities, fostering knowledge sharing and mentorship, and celebrating creative achievements.
 

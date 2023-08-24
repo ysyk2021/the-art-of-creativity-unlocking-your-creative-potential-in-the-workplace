@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=======================================================
 
 In this chapter, we will explore the power of positive self-talk and visualization as effective techniques for unlocking your creative potential in the workplace. By harnessing the mind's ability to shape thoughts and perceptions, you can cultivate a positive and empowered mindset that enhances creativity, boost confidence, and fuels innovation.
 

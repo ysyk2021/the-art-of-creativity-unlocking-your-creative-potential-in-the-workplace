@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-===============================================
 
 In this chapter, we will explore the importance of setting realistic goals and objectives as a crucial step in unlocking your creative potential in the workplace. By setting clear and achievable goals, you can channel your creativity effectively, stay focused, and make meaningful progress towards your desired outcomes.
 

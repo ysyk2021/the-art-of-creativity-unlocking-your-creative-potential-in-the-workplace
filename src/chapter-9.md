@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Creativity
-===============================================
 
 Technology can be a powerful tool for unlocking your creative potential in the workplace. In this chapter, we will explore strategies for leveraging technology for creativity, including identifying creative technologies and resources, using technology to enhance creative experiences, fostering accessibility and inclusivity, and avoiding information overload.
 
@@ -27,5 +25,4 @@ Conclusion
 ----------
 
 Leveraging technology for creativity can unlock your full creative potential and help you achieve meaningful outcomes in the workplace. By identifying creative technologies and resources, using technology to enhance creative experiences, fostering accessibility and inclusivity, and avoiding information overload, you can leverage technology effectively and strategically to support your creative endeavors. Remember to stay curious, experiment with new tools and technologies, and be open to feedback and constructive criticism to continuously improve your work.
-
 

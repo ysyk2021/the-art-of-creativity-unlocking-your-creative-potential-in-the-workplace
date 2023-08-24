@@ -1,5 +1,3 @@
-Overview of Creativity
-=================================
 
 Creativity is a powerful force that fuels innovation, drives success, and unlocks the full potential of individuals and organizations. In this chapter, we will provide an overview of creativity and its significance in unlocking creative potential in the workplace.
 

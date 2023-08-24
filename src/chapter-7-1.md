@@ -1,5 +1,3 @@
-Identifying Common Blocks to Creativity
-==================================================
 
 In this chapter, we will explore the common blocks that hinder creativity in the workplace. By understanding and recognizing these barriers, you can effectively overcome them and unlock your creative potential.
 

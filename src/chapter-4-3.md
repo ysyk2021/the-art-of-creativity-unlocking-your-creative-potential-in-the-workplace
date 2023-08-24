@@ -1,5 +1,3 @@
-Analyzing the Impact of Creativity on Individuals and Organizations
-==============================================================================
 
 In this chapter, we will explore the profound impact of creativity on individuals and organizations in the workplace. Understanding and harnessing the power of creativity can lead to significant personal and professional growth, as well as drive innovation and success within organizations.
 

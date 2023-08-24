@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Welcome to "The Art of Creativity: Unlocking Your Creative Potential in the Workplace." This book is designed to help individuals and organizations unlock their full creative potential by providing strategies and techniques for cultivating a creative mindset, developing creative skills, managing blocks to creativity, creating a culture of creativity within an organization, and leveraging technology for creativity.
 

@@ -1,5 +1,3 @@
-Developing Strategies for Strengthening Your Creativity
-==================================================================
 
 In this chapter, we will explore strategies for enhancing and expanding your creative potential in the workplace. These strategies will help you tap into your imagination, think outside the box, and generate innovative ideas that can drive success and growth. By incorporating these techniques into your daily routine, you can foster a creative mindset and unleash your full creative potential.
 

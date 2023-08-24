@@ -1,5 +1,3 @@
-Developing Empathy and Compassion through Creativity
-=============================================================
 
 In this chapter, we will explore how creativity can be a powerful tool for developing empathy and compassion in the workplace. By embracing creativity, individuals can deepen their understanding of others, foster meaningful connections, and create a more compassionate and inclusive work environment.
 

@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Creativity
-=========================================================
 
 Understanding your personal approach to creativity is pivotal in unlocking and leveraging your creative potential in the workplace. In this chapter, we will explore various methods and frameworks for assessing your unique creative approach.
 

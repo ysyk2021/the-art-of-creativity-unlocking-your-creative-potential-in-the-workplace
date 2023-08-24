@@ -1,5 +1,3 @@
-Recognizing How Creativity Contributes to Success
-============================================================
 
 In this chapter, we will explore how creativity contributes to success in the workplace. By understanding the impact of creativity on various aspects of professional life, we can harness its power to achieve personal and organizational success.
 

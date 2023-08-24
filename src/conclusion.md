@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we have explored strategies for unlocking your creative potential in the workplace. We've covered topics such as embracing creativity, overcoming creative blocks, collaborating with others, and creating a culture of creativity within an organization. As we conclude this book, let's recap some of the key strategies for unlocking your creative potential.
 

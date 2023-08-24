@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Blocks
-====================================================
 
 In this chapter, we will explore strategies for overcoming creative blocks and unleashing your full creative potential in the workplace. Understanding and addressing the factors that hinder creativity is essential for individuals to navigate challenges, break through barriers, and harness their creative energies effectively.
 

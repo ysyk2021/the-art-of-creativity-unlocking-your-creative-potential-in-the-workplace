@@ -1,5 +1,3 @@
-Understanding the Importance of Creativity in the Workplace
-====================================================================
 
 In this chapter, we will explore the significance of creativity in the workplace and how it can positively impact individuals, teams, and organizations as a whole. Understanding the importance of creativity will inspire you to unlock your creative potential and cultivate a work environment that encourages innovation and growth.
 
