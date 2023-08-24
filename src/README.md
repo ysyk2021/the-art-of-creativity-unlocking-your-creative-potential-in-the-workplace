@@ -1,5 +1,4 @@
 
-
 Welcome to "The Art of Creativity: Unlocking Your Creative Potential in the Workplace." In this book, we will explore the fascinating world of creativity and its immense value in professional settings. Whether you are an entrepreneur, a business professional, or simply someone looking to enhance their creative abilities, this book is designed to help you tap into your creative potential and leverage it to drive innovation and success.
 
 Creativity has become an increasingly sought-after skill in today's rapidly changing and competitive work environment. It fuels problem-solving, encourages fresh perspectives, and enables individuals and organizations to adapt and thrive in dynamic markets. By harnessing creativity, you can bring new ideas to the table, overcome challenges, and stand out from the crowd.
